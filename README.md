@@ -1,2 +1,2 @@
 # GitTest
-How the fuck do you do this shit
+I want to fucking kill myself, i'll hang myself tonight you fuckersxddd
